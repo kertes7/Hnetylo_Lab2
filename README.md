@@ -1,1 +1,1 @@
-[Лаб 2.pdf](https://github.com/user-attachments/files/17283528/2.pdf)
+[Лаб 2..odt](https://github.com/user-attachments/files/17292785/2.odt)
