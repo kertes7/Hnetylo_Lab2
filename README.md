@@ -1,1 +1,1 @@
-[лабараторна 2.docx](https://github.com/user-attachments/files/17384245/2.docx)
+[лабараторна 2.docx](https://github.com/user-attachments/files/17390552/2.docx)
